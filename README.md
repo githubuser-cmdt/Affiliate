@@ -1,0 +1,2 @@
+# Affiliate
+Affiliate marketing purposes 
